@@ -1,1 +1,1 @@
-Promo code : SALE50
+Free shipping
