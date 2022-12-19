@@ -1,1 +1,2 @@
 #License for everyone
+"GG"
